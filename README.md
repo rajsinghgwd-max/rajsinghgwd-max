@@ -1,16 +1,14 @@
 ## Hi there 👋
 
-<!--
-**rajsinghgwd-max/rajsinghgwd-max** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**im kartik vishwakarma and I'm a actor 
+but Im a innocent student but don't play with me otherwise I destroy ur life 🫩⚠️!!
 
-Here are some ideas to get you started:
+NAME - kartik vishwakarma 
+AGE - 17teen
+CLASS - 12th
+SUB - bio
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+DISCLAIMER - ⚠️🚨 
+he is a overthinker so Don't mess with him, he is just an overthinker, otherwise he is a boy with a shapely mind. If you stay away from him then it is your good fortune, and if you want to kill him then mess with him at your own risk. 
+* Connect with me on Instagram: [Instagram Profile](https://www.instagram.com/kitt.uuxx01)
+*username - @kitt.uuxx01
